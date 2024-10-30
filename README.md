@@ -1,0 +1,5 @@
+![Ekran Resmi 2024-10-30 13 53 16](https://github.com/user-attachments/assets/c1b93b6f-33f7-40ff-a9a9-8201eb5892aa)
+![Ekran Resmi 2024-10-30 13 53 25](https://github.com/user-attachments/assets/af689b2e-0268-4c3c-a28e-11c4ec689664)
+![Ekran Resmi 2024-10-30 13 53 48](https://github.com/user-attachments/assets/2922ba3a-3730-4fa2-9cdc-af4d79904efe)
+![Ekran Resmi 2024-10-30 13 53 55](https://github.com/user-attachments/assets/98ca0838-6b4b-4728-95e8-6e6092147d60)
+![Ekran Resmi 2024-10-30 13 54 03](https://github.com/user-attachments/assets/02ee6d05-1065-48c4-ace6-df093df637ed)
